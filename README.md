@@ -10,4 +10,3 @@
 
 ![3](https://github.com/user-attachments/assets/da24ee14-dc1b-4526-bf4c-da6dc82030dc)
 
-# ❄️ Final result
